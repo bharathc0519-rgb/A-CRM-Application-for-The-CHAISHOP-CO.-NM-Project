@@ -1,1 +1,0 @@
-# A-CRM-Application-for-The-CHAISHOP-CO.-NM-Project
